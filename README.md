@@ -1,0 +1,18 @@
+- 👋 Hi, I’m @RyderPlasmaPlaysScripterDevAnimator
+- 👀 I’m interested in Scripting/Developing/Animating/Editing/Drawing ...
+- 🌱 I’m currently learning Scripting/Coding/Developing/Editing/Animating/Drawing ...
+- 💞️ I’m looking to collaborate on Roblox Game's Companies ...
+- 📫 How to reach me. Contacts below ...
+- 💬 Discord:RyderPlasmaPlays#7954
+- 🐦 Twitter:RyderPlasmaPlay
+- 🐦 Twitter's Second Account: https://twitter.com/RyderGoAnimator
+- 📹 TikTok:https://www.tiktok.com/@mario72010
+- 📹 YouTube:https://www.youtube.com/channel/UCpVZaOsYfnIDkoqCApeAFsg
+- 📹 YouTube Second Channel:https://www.youtube.com/channel/UCh_SBA1DOYOU893UWVwL55Q
+- 💬 Twitch:https://www.twitch.tv/ryderplasmaplays/about
+- 🤖 Reddit:https://www.reddit.com/user/Acceptable_City5372
+- 🐈 GitHub's Profile:https://github.com/RyderPlasmaPlaysScripterDevAnimator
+- 🎵 Spotify's Profile: https://open.spotify.com/user/31y67eyi7xv5quu4ywbqfm6tts7e
+- 🛒 Ebay's Profile: https://www.ebay.com/usr/plasmaincorporated_0
+- 😤 Steam's Profile: https://steamcommunity.com/profiles/76561199249486256
+- ⬜ Roblox's Profile: https://www.roblox.com/users/2795189316/profile
